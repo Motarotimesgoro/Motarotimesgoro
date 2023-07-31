@@ -35,5 +35,4 @@ of innovation and creativity. Feel free to join me on this extraordinary expedit
 where I blend charisma, intellect, and camaraderie with lines of code.
 
 So, let's embark on a thrilling adventure together – the world of coding awaits, and together, we'll create magic in ones and zeroes! 🚀
-![image](https://github.com/Motarotimesgoro/Motarotimesgoro/assets/92076025/c0827573-6ee8-4759-86ae-04169b903004)
 
